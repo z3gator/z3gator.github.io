@@ -1,5 +1,15 @@
-Here you can say lots of fun things about your site.
+# Family Values
 
-Maybe say a some things about yourself.
+* Respect others and yourself
+* Show kindness to friends and strangers
+* Demonstrate honesty and integrity
+* Forgive mistakes and accept others as they are, flaws included
+* Build resilience; learn from challenges, believe in each other, and never give up
 
-Or maybe what you plan to blog about.
+# Expectations
+
+* Keep your room clean
+* Pick up after yourself everywhere else, too
+* Manage your time wisely; prioritize appropriately
+* Make time for exercise and mental health
+* Get off electronics well before bedtime and get enough sleep
