@@ -1,4 +1,4 @@
-# 1998 Columbus Marathon (8 Nov 1998)
+# Columbus Marathon
 
 ## Before the Race
 

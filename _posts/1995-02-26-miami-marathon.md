@@ -1,4 +1,4 @@
-# 1995 Miami Marathon (26 Feb 1995)
+# Miami Marathon
 
 ## Before the Race
 

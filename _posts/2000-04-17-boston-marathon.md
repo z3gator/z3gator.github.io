@@ -1,4 +1,4 @@
-# Boston Marathon 2000 (17 Apr 2000)
+# Boston Marathon
 
 ## Before the Race
 

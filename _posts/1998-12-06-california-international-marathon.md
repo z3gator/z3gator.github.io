@@ -1,4 +1,4 @@
-# 1998 California International Marathon (6 Dec 1998)
+# California International Marathon
 
 ## Before the Race
 

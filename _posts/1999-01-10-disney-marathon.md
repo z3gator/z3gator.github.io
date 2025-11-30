@@ -1,4 +1,4 @@
-# 1999 Disney World Marathon (10 Jan 1999)
+# Disney World Marathon
 
 ## Before the Race
 

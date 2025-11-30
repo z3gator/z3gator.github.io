@@ -1,4 +1,4 @@
-# 1999 Pittsburgh Marathon (2 May 1999)
+# Pittsburgh Marathon
 
 ## Before the Race
 
